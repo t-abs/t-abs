@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/65d6a802-9544-4245-8884-957e9029a04c)
+![image](https://github.com/user-attachments/assets/249cf3be-9393-4b2b-acbc-14def4728027)
+
 
 
 - 👋 Hi, I’m @t-abs
