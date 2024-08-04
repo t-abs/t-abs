@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/65d6a802-9544-4245-8884-957e9029a04c)
+
+
 - 👋 Hi, I’m @t-abs
 - 👀 I’m interested in Data Science and Machine Learning
 - 🌱 I’m currently learning 
