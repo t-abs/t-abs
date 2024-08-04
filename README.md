@@ -4,7 +4,8 @@
 - 📫 How to reach me -basutanisha1@gmail.com
 - 😄 Pronouns: She/Her
 - My portfolio- https://66af21204b29e.site123.me/
-- Fun Fact-Love to sing songs
+- ⚡ Fun fact: I love singing
+
 
 <!---
 t-abs/t-abs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
