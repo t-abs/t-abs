@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning 
 - 📫 How to reach me -basutanisha1@gmail.com
 - 😄 Pronouns: She/Her
-- My portfolio- https://66af21204b29e.site123.me/
+- My portfolio- https://t-abs.github.io/Portfolio-Website/#
 - ⚡ Fun fact: I love singing
 
 
