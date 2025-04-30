@@ -1,6 +1,6 @@
 
 
-- 👋 Hi, I’m @t-abs
+- 👋 Hi, I’m Tanisha
 - 👀 I’m interested in Data Science and Machine Learning
 - 🌱 I’m currently learning 
 - 📫 How to reach me -basutanisha1@gmail.com
